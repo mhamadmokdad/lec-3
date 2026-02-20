@@ -2,9 +2,6 @@
 
 
 
-
-
-Uploading Screen Recording 2026-02-20 201403.mp4…
 YOUTUBEE LINK
 https://youtu.be/7Dz4bq5O1kY
 
