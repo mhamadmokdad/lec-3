@@ -1,6 +1,13 @@
-# second_lesson
+# third lesson
 
-https://github.com/user-attachments/assets/69a564eb-d031-442b-9515-53717bedfd46
+
+
+
+
+Uploading Screen Recording 2026-02-20 201403.mp4…
+YOUTUBEE LINK
+https://youtu.be/7Dz4bq5O1kY
+
 
 ---
 
